@@ -15,10 +15,12 @@ payoh nye weiii
 
 weiii
 
+nonie cuba
+
 sy budak br belajar
 
 tukar lagi weiii
 
 zee suruh ubah
 
-asdasodmoasmdosam
+tukar
